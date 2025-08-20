@@ -38,6 +38,47 @@ Strogonoff pronto, sirva com arroz soltinho e uma boa batata palha, frita ou ass
 
 
 
+# Lasanha vegana
+
+### Ingredientes:
+
+- 3 tomates sem pele e sem sementes
+- 2 dentes de alho
+- 1/2 xícara (chá) de cebola picada
+- Sal e salsinha picada a gosto
+
+### Massa
+
+- 2 abobrinhas médias fatiadas
+
+### Recheio
+
+- 1 xícara (chá) de couve-flor
+- 1 xícara (chá) de brócolis
+- 400g de tofu
+- 2 copos (500ml) de água
+
+#### Modo de preparo:
+
+Para o molho, pique o tomate e o alho
+Coloque em uma panela e adicione a cebola, o sal e a salsa
+Tampe e cozinhe por aproximadamente 20 minutos
+Enquanto isso, cozinhe separadamente a couve-flor e os brócolis até ficarem macios e então reserve
+Disponha uma camada de abobrinha fatiada em um refratário
+Despeje um pouco de molho
+Misture os legumes, pique e coloque sobre a camada de abobrinha
+Cubra com outra camada de massa e com o restante do molho de tomates
+Pré-aqueça o forno em temperatura alta, polvilhe tofu por cima e leve para gratinar por, aproximadamente, 5 minutos ou até dourar
+Retire e sirva em seguida.
+
+
+
+
+
+
+
+
+
 
 
 
